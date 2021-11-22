@@ -6,4 +6,5 @@ THIS BOT IS SUPPORTED BY ONWER OF TGN JOIN FOR UPDATE RELATED INFO :- https://t.
 
 [![𝔾ℝ𝔼𝔸𝕋 ℙ𝔼ℝ𝕊𝕆ℕ 𝕃𝕆𝔾𝕆](https://telegra.ph/file/5f24640dfb6186259324a.jpg)](https://t.me/international_hindi_chatting)
 
-#𝖋𝖔𝖗𝖐 𝖑𝖓 𝖚𝖗 𝖔𝖜𝖓 𝖗𝖎𝖘𝖐 
+
+                  
